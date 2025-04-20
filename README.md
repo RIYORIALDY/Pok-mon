@@ -28,6 +28,6 @@ MIT License
 ## Kontak
 
 Jika Anda ingin terhubung dengan saya, silakan kunjungi profil LinkedIn saya:  
-🔗 [LinkedIn - Riyo Rialdy Urda](www.linkedin.com/in/riyorialdyurda)
+🔗 www.linkedin.com/in/riyorialdyurda
 
 
